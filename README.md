@@ -1,1 +1,1 @@
-assigment from dibimbing 
+konfigurasi 
